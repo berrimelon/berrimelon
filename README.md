@@ -73,7 +73,8 @@ rad queers, endogenic systems,
 
 ![](https://64.media.tumblr.com/d49116a729a4d7e4682d1fc9928891b5/5af052fad280d28f-6b/s250x400/7353dd8fc0103cb5f77792218c6863f60b43a7dd.gifv)
 
-![](https://64.media.tumblr.com/a87db129d0d396ba550f87c744dcba8d/7dcb8749a43e06a0-41/s1280x1920/9376592b30a28f0e767ae7dabf323c0e38a89401.pnj)
+
+<img src="https://64.media.tumblr.com/a87db129d0d396ba550f87c744dcba8d/7dcb8749a43e06a0-41/s1280x1920/9376592b30a28f0e767ae7dabf323c0e38a89401.pnj" style="width: 200px; height: 50px;"/>
 
 </details>
 
