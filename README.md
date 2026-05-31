@@ -8,7 +8,7 @@
 </div>  
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=BERRYMELON-username&color=blue&label=Town-visitors)
+  ![](https://komarev.com/ghpvc/?username=BERRYMELON-username&color=FFB0C9&label=Town-visitors)
 
   ![](https://64.media.tumblr.com/c4419a11f54ed1fa216706522a436e82/c5104faef994b878-e9/s1280x1920/12865d512e4fe8de149051353b81336fcf9bf57b.gifv)
 </div>
