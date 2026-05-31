@@ -10,7 +10,7 @@
 
   ![](https://komarev.com/ghpvc/?username=BERRYMELON-username&color=FFB0C9&label=Town-visitors)
 
-  ![](https://64.media.tumblr.com/c4419a11f54ed1fa216706522a436e82/c5104faef994b878-e9/s1280x1920/12865d512e4fe8de149051353b81336fcf9bf57b.gifv)
+  ![](https://64.media.tumblr.com/5f40176726344f714caaa91412064f86/cba3933d5b0664b8-61/s2048x3072/8ac21bf3871c4f3704958fab618e0b380bff1988.pnj)
 </div>
 
 <details>
