@@ -1,16 +1,16 @@
 ![](https://64.media.tumblr.com/b9de4d9e310c7976d6eb6f2eb20eb6a8/967f115ee5456bb4-24/s2048x3072/0acec66b6a727d985af5ef5b141a84b2bd6e4f1b.pnj)
 
 
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/rosalina1.gifv" align="left" width="30%"><p align="center">  ${\textsf{\color{#84edf0}"Your own piece of heaven."}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/yellowsquiggle.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#84edf0}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> She ♡ They⠀⸝⠀18 <br> Vet Tech Major ⎯⎯⎯ Future UI Designer <br> ${\textsf{\color{#84edf0}INFP}}$⎯⎯Ambivertㅤ &&.ㅤ ${\textsf{\color{#84edf0}WWE}}$⎯⎯Superfan. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/yellowsquiggle.pnj" style="width: 30%; height: auto;"/>
+<img src="https://64.media.tumblr.com/effe6754c4ade2c14b4cd59add37ae04/9c634d16c7746aee-31/s1280x1920/dfb33d22c5a7dc8b53f62d7bfa6b69eb3e675be0.gifv" align="left" width="30%"><p align="center">  ${\textsf{\color{#84edf0}"Your own piece of heaven."}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/yellowsquiggle.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#84edf0}Berrymelon}}$ ㅤ/ㅤ<i> The WorldWideWeb collective </i> <br> Any ♡ All pronouns⠀⸝⠀bodily 17 <br> Vet Tech Major ⎯⎯⎯ Future UI Designer <br> ${\textsf{\color{#84edf0}INFP}}$⎯⎯Ambivertㅤ &&.ㅤ ${\textsf{\color{#84edf0}WWE}}$⎯⎯Superfan. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/yellowsquiggle.pnj" style="width: 30%; height: auto;"/>
 <div align="right">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=84EDF0&vCenter=true&width=435&lines=%22There+is+a+force+that+binds+us%2C;defying+even+time+and+space...%22" align="center" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=84EDF0&vCenter=true&width=435&lines=%22Honey+just+put+your+sweet+lips+on+my+lips%2C...%22" align="center" alt="Typing SVG" /></a>
 </div>  
 <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=Cherubinn-username&color=84edf0&label=Lumas)
-</div>
+  ![](https://komarev.com/ghpvc/?username=BERRYMELON-username&color=blue&label=Town-visitors)
 
-![](https://file.garden/aLcUmNZBvTGYyXJl/smallstars.pnj)
+  ![](https://64.media.tumblr.com/c4419a11f54ed1fa216706522a436e82/c5104faef994b878-e9/s1280x1920/12865d512e4fe8de149051353b81336fcf9bf57b.gifv)
+</div>
 
 <details>
 <summary> ⎯⎯ㅤ ${\textsf{\color{#84edf0}More Info}}$ ღ </summary>
