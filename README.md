@@ -1,9 +1,3 @@
-<div align="center">
-
-<img src="https://file.garden/aLcUmNZBvTGYyXJl/buttons/bestondesktop.gifv">
-
-</div>
-
 ![](https://64.media.tumblr.com/b9de4d9e310c7976d6eb6f2eb20eb6a8/967f115ee5456bb4-24/s2048x3072/0acec66b6a727d985af5ef5b141a84b2bd6e4f1b.pnj)
 
 
