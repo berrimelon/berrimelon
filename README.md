@@ -1,10 +1,10 @@
 ![](https://64.media.tumblr.com/b9de4d9e310c7976d6eb6f2eb20eb6a8/967f115ee5456bb4-24/s2048x3072/0acec66b6a727d985af5ef5b141a84b2bd6e4f1b.pnj)
 
 
-<img src="https://64.media.tumblr.com/effe6754c4ade2c14b4cd59add37ae04/9c634d16c7746aee-31/s1280x1920/dfb33d22c5a7dc8b53f62d7bfa6b69eb3e675be0.gifv" align="left" width="30%"><p align="center">  ${\textsf{\color{#84edf0}"Your own piece of heaven."}}$ <br> <img src="https://64.media.tumblr.com/312bf0df1b0151866e6b59ba862b849f/7567ed58787e98ec-e8/s2048x3072/c22c3f534a9497036358634ef3ee095a1cba45b7.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#84edf0}Berrymelon}}$ ㅤ/ㅤ<i> Confetti </i> <br> Any ♡ All pronouns⠀⸝⠀bodily 17 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#84edf0}INFP}}$⎯⎯Ambivertㅤ .✦ ݁˖ㅤ ${\textsf{\color{#84edf0}Yume + Pro-shipper}}$ <br> 
+<img src="https://64.media.tumblr.com/effe6754c4ade2c14b4cd59add37ae04/9c634d16c7746aee-31/s1280x1920/dfb33d22c5a7dc8b53f62d7bfa6b69eb3e675be0.gifv" align="left" width="30%"><p align="center">  ${\textsf{\color{#A9D8E8}"Your own piece of heaven."}}$ <br> <img src="https://64.media.tumblr.com/312bf0df1b0151866e6b59ba862b849f/7567ed58787e98ec-e8/s2048x3072/c22c3f534a9497036358634ef3ee095a1cba45b7.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#A9D8E8}Berrymelon}}$ ㅤ/ㅤ<i> Confetti </i> <br> Any ♡ All pronouns⠀⸝⠀bodily 17 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#A9D8E8}INFP}}$⎯⎯Ambivertㅤ .✦ ݁˖ㅤ ${\textsf{\color{#A9D8E8}Yume + Pro-shipper}}$ <br> 
 <img src="https://64.media.tumblr.com/125bf193324015981839d9cf9b17e81c/7567ed58787e98ec-97/s2048x3072/54bd7c97a0cbf0334de40a88d55019d8e89fa01f.pnj" style="width: 30%; height: auto;"/>
 <div align="right">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=84EDF0&vCenter=true&width=435&lines=%22Honey+just+put+your+sweet+lips+on+my+lips%2C...%22" align="center" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=F2B1C1&vCenter=true&width=435&lines=%22Honey+just+put+your+sweet+lips+on+my+lips%2C...%22" align="center" alt="Typing SVG" /></a>
 </div>  
 <div align="center">
 
@@ -14,7 +14,7 @@
 </div>
 
 <details>
-<summary> ⎯⎯ㅤ ${\textsf{\color{#84edf0}About us!}}$ ღ </summary>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#947A68}About us!}}$ ღ </summary>
 
 ![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) We are a DID traumagenic system
 
@@ -32,14 +32,14 @@
 </p>
 
 <details>
-<summary> ⎯⎯ㅤ ${\textsf{\color{#84edf0}DNI list}}$ ღ </summary>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#947A68}DNI list}}$ ღ </summary>
 
 anti pro-shippers (obviously), anti xenos, anyone under the age of 13, racists, pro-contacts with harmful paras
 
 </details>
 
 <details>
-<summary> ⎯⎯ㅤ ${\textsf{\color{#84edf0}On thin ice list}}$ ღ </summary>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#947A68}On thin ice list}}$ ღ </summary>
 
 rad queers, endogenic systems, 
 
@@ -53,7 +53,7 @@ rad queers, endogenic systems,
 
 
 <details>
-<summary> ⎯⎯ㅤ ${\textsf{\color{#84edf0}Blinkies, Stamps and Buttons!}}$ ღ </summary>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#947A68}Blinkies, Stamps and Buttons!}}$ ღ </summary>
 
 ![](https://64.media.tumblr.com/b3b4dc4f5ea7c8bfb1cd7441003efa8f/16ec8eee5a6c4ebc-e6/s250x400/2e61d3f55cb91af0fe3a1f9389e5c57986ee3cc8.gifv)
 ![](https://64.media.tumblr.com/2e20c79141e428662084e464c0248134/16ec8eee5a6c4ebc-da/s250x400/bdfb8ebf5299da7c1d4bcafc0e2dc647bf461fcd.gifv)
