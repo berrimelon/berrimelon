@@ -26,7 +26,7 @@
 
 ![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) We will not interact with you if you are under 13
 
-![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) We also have: Derealization, Paranoid Personality Disorder, Aphantasia
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) We also have: Derealization, Paranoid Personality Disorder, Aphantasia, and PTSD
 </details>
 
 </p>
@@ -53,6 +53,9 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{#84edf0}Stamps}}$ ღ </summary>
 
 ![](https://64.media.tumblr.com/2e647c2a081a4c13c00c16b5145bb65e/6fa673e382301ccd-49/s100x200/a2d16731a52df5e6651d4f53602e0f190b6888d7.gifv)
+![](https://64.media.tumblr.com/548e6adbe7e1c968030a43c23b5012cd/e3071721f0e9ec15-e6/s250x400/12e9f590a1420f65432d0723538a3857ea2b7d49.pnj)
+![](https://64.media.tumblr.com/3e7e87782ace4e800a0ac77ea65781b7/73eef17597a75fa8-17/s250x400/3b36ab8f7674dea4861c800abc573e82e080726c.pnj)
+![](https://64.media.tumblr.com/41baac4474ec8f54621817629af2dc02/73eef17597a75fa8-b5/s250x400/19a88854c71b4477296bddc8234dd1c3238e5717.pnj)
 
 
 </details>
