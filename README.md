@@ -4,7 +4,7 @@
 
 </div>
 
-![](https://file.garden/aLcUmNZBvTGYyXJl/smallstars.pnj)
+![](https://64.media.tumblr.com/b9de4d9e310c7976d6eb6f2eb20eb6a8/967f115ee5456bb4-24/s2048x3072/0acec66b6a727d985af5ef5b141a84b2bd6e4f1b.pnj)
 
 
 <img src="https://file.garden/aLcUmNZBvTGYyXJl/rosalina1.gifv" align="left" width="30%"><p align="center">  ${\textsf{\color{#84edf0}"Your own piece of heaven."}}$ <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/yellowsquiggle.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#84edf0}Cherub}}$ ㅤ/ㅤ<i> Jem </i> <br> She ♡ They⠀⸝⠀18 <br> Vet Tech Major ⎯⎯⎯ Future UI Designer <br> ${\textsf{\color{#84edf0}INFP}}$⎯⎯Ambivertㅤ &&.ㅤ ${\textsf{\color{#84edf0}WWE}}$⎯⎯Superfan. <br> <img src="https://file.garden/aLcUmNZBvTGYyXJl/yellowsquiggle.pnj" style="width: 30%; height: auto;"/>
