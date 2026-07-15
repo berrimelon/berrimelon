@@ -39,9 +39,9 @@ anti pro-shippers (obviously), anti xenos, anyone under the age of 13, racists, 
 </details>
 
 <details>
-<summary> ⎯⎯ㅤ ${\textsf{\color{#947A68}On thin ice list}}$ ღ </summary>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#947A68}Interact with caution}}$ ღ </summary>
 
-rad queers, endogenic systems, 
+rad queers, endogenic systems
 
 </details>
 
