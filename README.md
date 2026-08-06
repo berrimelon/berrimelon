@@ -18,7 +18,7 @@
 
 ![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) We are a DID traumagenic system
 
-![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) We identify as: genderfluid, transgender, objectum, and omni!
+![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) We identify as: genderfluid, transgender, and omni!
 
 ![](https://64.media.tumblr.com/03761e68194899e0131d794510a8450c/49bef966ad7197d0-8a/s75x75_c1/2703d7ca3db27adc948c6335884afd982e3d018f.gifv) We have a curent headcount of over 30 alters
 
