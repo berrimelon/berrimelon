@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/962a0263924eadc0e56d6f4ebff7ec7d/2ddfd46d4cfa0a68-2f/s2048x3072/9116a6851848494ea0dd89af73fd8408da326217.pnj)
 
 
-<img src="https://64.media.tumblr.com/effe6754c4ade2c14b4cd59add37ae04/9c634d16c7746aee-31/s1280x1920/dfb33d22c5a7dc8b53f62d7bfa6b69eb3e675be0.gifv" align="left" width="30%"><p align="center">  ${\textsf{\color{#A9D8E8}"Your own piece of heaven."}}$ <br> <img src="https://64.media.tumblr.com/312bf0df1b0151866e6b59ba862b849f/7567ed58787e98ec-e8/s2048x3072/c22c3f534a9497036358634ef3ee095a1cba45b7.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#A9D8E8}Berrymelon}}$ ㅤ/ㅤ<i> Confetti </i> <br> Any ♡ All pronouns⠀⸝⠀bodily 17 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#A9D8E8}INFP}}$⎯⎯Ambivertㅤ .✦ ݁˖ㅤ ${\textsf{\color{#A9D8E8}DID system}}$ <br> 
+<img src="https://64.media.tumblr.com/426773ff78acf914e928bdf52390bd04/9d7b4eb5705cad04-94/s250x400/61a5e6aa75848766587c435d05f6a98566cc936e.pnj" align="left" width="30%"><p align="center">  ${\textsf{\color{#A9D8E8}"Your own piece of heaven."}}$ <br> <img src="https://64.media.tumblr.com/312bf0df1b0151866e6b59ba862b849f/7567ed58787e98ec-e8/s2048x3072/c22c3f534a9497036358634ef3ee095a1cba45b7.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#A9D8E8}Berrymelon}}$ ㅤ/ㅤ<i> Confetti </i> <br> Any ♡ All pronouns⠀⸝⠀bodily 17 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#A9D8E8}INFP}}$⎯⎯Ambivertㅤ .✦ ݁˖ㅤ ${\textsf{\color{#A9D8E8}DID system}}$ <br> 
 <img src="https://64.media.tumblr.com/125bf193324015981839d9cf9b17e81c/7567ed58787e98ec-97/s2048x3072/54bd7c97a0cbf0334de40a88d55019d8e89fa01f.pnj" style="width: 30%; height: auto;"/>
 <div align="right">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=F2B1C1&vCenter=true&width=435&lines=%22Honey+just+put+your+sweet+lips+on+my+lips%2C...%22" align="center" alt="Typing SVG" /></a>
@@ -10,7 +10,7 @@
 
   ![](https://komarev.com/ghpvc/?username=BERRYMELON-username&color=FFB0C9&label=Town-visitors)
 
-  ![](https://64.media.tumblr.com/426773ff78acf914e928bdf52390bd04/9d7b4eb5705cad04-94/s250x400/61a5e6aa75848766587c435d05f6a98566cc936e.pnj)
+  ![](https://64.media.tumblr.com/1b1f83f71dc2e18939b548c03a5fade6/26538cc3d576717f-c0/s400x600/0e19c4a4a104ecd970173b6804f67b6bd4a81d65.webp)
 </div>
 
 <details>
