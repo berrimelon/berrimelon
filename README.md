@@ -84,4 +84,4 @@ anti xenos, anyone under the age of 13, T.R.A.S.H.
 
 </details>
 
-![](https://64.media.tumblr.com/ac1bfb06f9b9eb60b9465b7116038bf8/967f115ee5456bb4-0a/s2048x3072/4aadd4a7e8395b62c9abf7f5b736bf6714fee92e.pnj)
+![](https://64.media.tumblr.com/d77a49a04c32e0173c8d8835ed28d811/ce4a85b266d655ed-b3/s250x400/56556c24953ca11b917fca54d693b3cfb308e76e.pnj)
