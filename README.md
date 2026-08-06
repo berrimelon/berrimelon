@@ -2,7 +2,7 @@
 
 
 <img src="https://64.media.tumblr.com/426773ff78acf914e928bdf52390bd04/9d7b4eb5705cad04-94/s250x400/61a5e6aa75848766587c435d05f6a98566cc936e.pnj" align="left" width="30%"><p align="center">  ${\textsf{\color{#A9D8E8}"Your own piece of heaven."}}$ <br> <img src="https://64.media.tumblr.com/312bf0df1b0151866e6b59ba862b849f/7567ed58787e98ec-e8/s2048x3072/c22c3f534a9497036358634ef3ee095a1cba45b7.pnj" style="width: 30%; height: auto;"/> <p align="center"> ${\textsf{\color{#A9D8E8}Berrymelon}}$ ㅤ/ㅤ<i> Confetti </i> <br> Any ♡ All pronouns⠀⸝⠀bodily 17 <br> CSS + HTML coder ⎯⎯⎯ website designer <br> ${\textsf{\color{#A9D8E8}INFP}}$⎯⎯Ambivertㅤ .✦ ݁˖ㅤ ${\textsf{\color{#A9D8E8}DID system}}$ <br> 
-<img src="https://64.media.tumblr.com/125bf193324015981839d9cf9b17e81c/7567ed58787e98ec-97/s2048x3072/54bd7c97a0cbf0334de40a88d55019d8e89fa01f.pnj" style="width: 30%; height: auto;"/>
+<img src="https://64.media.tumblr.com/adc17272b44e0c5b0595cb8f7c1813d7/0d5045c63d5d2d4a-09/s2048x3072/e3b56d6815fa0f2a8c66c40b73e8a11897a56aab.pnj" style="width: 30%; height: auto;"/>
 <div align="right">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&duration=1000&pause=2000&color=F2B1C1&vCenter=true&width=435&lines=%22Honey+just+put+your+sweet+lips+on+my+lips%2C...%22" align="center" alt="Typing SVG" /></a>
 </div>  
