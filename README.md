@@ -34,14 +34,14 @@
 <details>
 <summary> ⎯⎯ㅤ ${\textsf{\color{#947A68}DNI list}}$ ღ </summary>
 
-anti pro-shippers (obviously), anti xenos, anyone under the age of 13, racists, pro-contacts with harmful paras
+anti xenos, anyone under the age of 13, T.R.A.S.H.
 
 </details>
 
 <details>
-<summary> ⎯⎯ㅤ ${\textsf{\color{#947A68}Interact with caution}}$ ღ </summary>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#947A68}place holder}}$ ღ </summary>
 
-rad queers, endogenic systems
+
 
 </details>
 
